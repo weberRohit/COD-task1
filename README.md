@@ -8,7 +8,7 @@
 
 **Duration:** JUNE 25TH TO JULY 25TH 2024
 
-**Mentor:** SRAVANI GOUNI
+**Mentor:**  NEELA SANTHOSH KUMAR
 
 
 
